@@ -1,0 +1,2 @@
+# tech-oskgoc
+srtyhn
